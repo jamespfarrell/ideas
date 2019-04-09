@@ -1,4 +1,4 @@
-Well apparently [rent control](doesn't work).
+Well apparently [rent control](http://freakonomics.com/podcast/rent-control/).
 
 I have an idea for another way, please shoot holes in it!
 
